@@ -1,1 +1,1 @@
-# Learning's from OG Namaste React Course
+# Learning's from OG Namaste React Course 🚀
